@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @DePotterr
+- :mortar_board: Student at AP Hogeschool Antwerp
+- 🌱 2nd year computer application
